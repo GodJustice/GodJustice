@@ -17,7 +17,7 @@ I'm GodJustice known as Iheb on [Youtube](https://www.youtube.com/channel/UC534P
 ![PHP](https://img.shields.io/badge/php-%23777BB4.svg?style=for-the-badge&logo=php&logoColor=white)
 
 
-My Operating System System Is Windows 11:
+My Operating System Is Windows 11:
 
 ![Windows 10](https://img.shields.io/badge/Windows-0078D6?style=for-the-badge&logo=windows&logoColor=white)
 
