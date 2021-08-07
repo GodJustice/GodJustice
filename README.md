@@ -4,7 +4,9 @@
 
 I'm GodJustice known as Iheb on [Youtube](https://www.youtube.com/channel/UC534Pck1pfLsVoUJpSMOg7A). I Spend most of time coding outstanding projects or recording content, You can contact me on [Discord](https://www.discord.gg/marski) where I'm just chilling.
 
+Discord:
 
+<img src="https://discord.c99.nl/widget/theme-2/870168078686761012.png">
 
 
 
