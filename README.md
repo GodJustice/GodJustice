@@ -6,7 +6,7 @@ I'm GodJustice known as Iheb on [Youtube](https://www.youtube.com/channel/UC534P
 
 Discord:
 
-<img src="https://discord.c99.nl/widget/theme-4/870168078686761012.png">
+<img src="https://discord.c99.nl/widget/theme-4/852828884239908896.png">
 
 
 
